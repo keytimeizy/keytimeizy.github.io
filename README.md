@@ -3,4 +3,4 @@ Kaethe Maizzy M. Bernales
 
 LG - Brebeuf
 
-![image](https://i.pinimg.com/564x/9b/1d/18/9b1d1818e1d21f83282171eeb40d711e.jpg)
+![image](https://imgix.ranker.com/list_img_v2/9563/3149563/original/3149563-u1)
